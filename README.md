@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @CncMinifix55
+- 👀 I’m interested in roller skating
+- 🌱 I’m currently learning python.
+- 📫 How to reach me: İnstagram: v.t4ha
